@@ -1,5 +1,6 @@
 # **Michael's top 5 Yakuza games listicle** 
 ---
+**Number 1 is at the top then after is 2 and so on**
 
 ## Yakuza 0 
 ![Yakuza0](https://shared.akamai.steamstatic.com/store_item_assets/steam/apps/638970/capsule_616x353.jpg?t=1717075546)
